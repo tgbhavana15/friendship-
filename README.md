@@ -1,0 +1,1 @@
+https://friendshipdaywishess.netlify.app/
